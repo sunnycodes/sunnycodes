@@ -4,7 +4,7 @@
 - 💞️ I don't have any exciting collab idea right now, but you can reach me for anything.
 - 📫 How to reach me sunnydesigns0403@gmail.com
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I'd been matcha addicted for half of a year and then unsuprisingly grown most pounds I ever gained for my whole life. It really traumatized me and now this is my least favorite drink and I haven't had any for a long while.
+- ⚡ Fun fact: I'd been matcha addicted for half of a year and then unsuprisingly grown most pounds I ever had for my whole life. It really traumatized me and now this is my least favorite drink and I haven't had any for a long while.
 
 <!---
 sunnycodes/sunnycodes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
